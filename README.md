@@ -1,3 +1,15 @@
+## 2020.10.12
+
+### The woman taking over TikTok at the toughest time
+
+​		"They need to be investing in those folks, " he said."There's so many things out of their control, but their future growth is based on influencers and content creators continuing to evolve and grow and leverage the new capabilities TikTok is rolling out."
+
+### The mental hacks that level up your self-control
+
+​		By definition, self-control is the ability to do something that benefits your long-term goals, instead of something that might satisfy your immediate desires. But for many of us, short-term satiations are irresistible — we end up sacrificing the well-being of our future selves all too easily.
+
+​		For example, exhibiting self-control over spending time on video games and social media, two of the most common **temptations** of the current era, means battling against age-old mechanisms in your brain — like your desire for social interaction or **penchant** for hunting.
+
 ## 2020.10.11
 
 ### Forbidden City at 600: How China's imperial palace survived against the odds
