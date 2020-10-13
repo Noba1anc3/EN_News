@@ -1,3 +1,13 @@
+## 2020.10.13
+
+### USC professor under fire after using Chinese expression students allege sounds like English slur
+
+​		Weibo users echoed American criticisms that this may be an example of cultural sensitivity gone wrong, with a few comments **likening** the incident to "literary **inquisition**, " the historical Chinese **persecution** of intellectuals for their writings.
+
+### Mandela, Gorbachev, Trump? A disruptive president plays peacemaker
+
+​		Given Trump's worldwide reputation as a dangerous disrupter, he seems exceedingly unlikely to join a cast of **luminaries** that includes Nelson Mandela and Mikhail Gorbachev. But all of the talk of peace prizes does spotlight what in recent weeks has become a core foreign policy message for the president in the **homestretch** of the November election.
+
 ## 2020.10.12
 
 ### The woman taking over TikTok at the toughest time
