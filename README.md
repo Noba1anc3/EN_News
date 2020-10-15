@@ -1,3 +1,23 @@
+## 2020.10.15
+
+### Can China look past counterfeits and superstition in its burgeoning second-hand fashion market
+
+​		Rental and pre-owned retail services offer ways for shoppers to keep their wardrobes varied. In the globe's most **populous** country, however, appetite for second-hand clothing remains **lackluster**. This could be a matter of positioning, according to fashion influencer Xie Xinyan. Low-end **thrift** stores may be rare in China, but the 24-year-old has witnessed a significant jump in the number of higher-end outlets marketing themselves as "**vintage**."
+
+## 2020.10.14
+
+### Yoshihide Suga to be Japan's prime minister after wining party vote
+
+​		Suga's **landslide** victory has fueled **speculation** that he could attempt to **capitalize on** his **popularity** with a **snap** election next month to boost his chances of winning a full three-year term when the LDP holds a leadership vote next September.
+
+### After Afghan women asked #WhereIsMyName, a small victory
+
+​		The old Afghan **taboo** over women in public runs so deep that young schoolboys often get into fights if someone even mentions the name of their mother or sister. In a country of war and widows, women struggle to assert themselves as legal guardians of their children. Even most women's graves never include their names — only those of male relatives.
+
+### Do dreams reflect reality
+
+​		Instead, the **premise** is that dreams reflect a dreamer's **quotidian** experience — either because they are an **epiphenomenon** of the **consolidation** of memories or because they are a mental testing ground for ideas. This **resemblance** between dreams and reality is **dubbed** the continuity hypothesis by psychologists.
+
 ## 2020.10.13
 
 ### USC professor under fire after using Chinese expression students allege sounds like English slur
