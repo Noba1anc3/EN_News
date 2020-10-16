@@ -1,3 +1,19 @@
+## 2020.10.16
+
+### For refusing a drink with the boss, he was slapped in the face
+
+​		Around the globe, alcohol has long been seen as a way for workers to **bond**, as a **catalyst** for business deals and as a vital **lubricant** for professional connections.
+
+### The Guardian view on African success: a step closer to conquering polio
+
+​		Third, **eradication** is in its final, most delicate, stage. The vaccine, a droplet-administered method that contains active virus and **confers** lifelong immunity, must eventually be replaced by injections of inactive strains in order to cancel all risk of vaccine-derived polio virus.
+
+### When does a good attitude become toxic positivity
+
+​		It's not that she disagreed. But in those moments, she wanted acknowledgement that the exhaustion she was going through was **legitimate**. A focus on **upbeat** thinking, while **shunting** challenging and difficult experiences to the side, is what some experts call "toxic positivity."
+
+​		"Sometimes we just need to say 'Yeah, me too, ' or 'That makes total sense, '" Long said."It's allowing someone to express something that's authentic, even if it's uncomfortable or even if it's hard to hear."
+
 ## 2020.10.15
 
 ### Can China look past counterfeits and superstition in its burgeoning second-hand fashion market
