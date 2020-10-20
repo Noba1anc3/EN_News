@@ -1,3 +1,15 @@
+## 2020.10.20
+
+### Tencent Video battles iQiyi in China's streaming wars
+
+​		Still, as Westerners who pay for a few video subscriptions can **attest**, streaming is not a zero-sum game. Gigi Zhou of BOCOM International, a **broker**, reckons the Chinese market will soon be big enough to sustain both iQiyi and Tencent Video.
+
+### How Donald Kendall, as PepsiCo's boss, sparked the cola wars
+
+​		Mr Kendall offered a mix of strategic vision, principled leadership and marketing **flair**. But his **masterstroke** was the all-out marketing **blitz** against Coca-Cola, long the global market leader in non-alcoholic beverages.
+
+​		The second way that the cola wars benefited both companies was by turning them into "the world's best marketers", observes Kaumil Gajrawala of Credit Suisse, a bank. Today a decades-long obsession with cut-price volume growth has been replaced by a focus on revenues and profits. PepsiCo has **relinquished** some of the soft-drinks market. But its marketing magic continues to sparkle, even if it is deployed to sell less sugary alternatives.
+
 ## 2020.10.16
 
 ### For refusing a drink with the boss, he was slapped in the face
