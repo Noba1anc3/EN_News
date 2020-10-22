@@ -1,6 +1,14 @@
-## 2020.10.21
+## 2020.10.22
 
+### Microsoft drives another nail in the coffin of its most hated product
 
+​		But Microsoft failed to innovate, essentially leaving IE6 alone to gather dust and **cobwebs** for five years. That frustrated customers and sent them fleeing for greener **pastures**. Internet Explorer became **synonymous** with bugs and outdated technology.
+
+### Success addicts choose being special over being happy
+
+​		Though it isn't a conventional medical addiction, for many people success has addictive properties. To a certain extent, praise stimulates the **neurotransmitter** **dopamine**, which is **implicated** in all addictive behaviors.
+
+​		Success in and of itself is not a bad thing, any more than wine is a bad thing. Both can bring fun and sweetness to life. But both become **tyrannical** when they are a substitute for — instead of a complement to — the relationships and love that should be at the center of our lives.
 
 ## 2020.10.20
 
