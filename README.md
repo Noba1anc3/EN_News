@@ -1,3 +1,9 @@
+## 2020.10.23
+
+### Why locusts swarm
+
+​		Locusts are usually inoffensive, **solitary** creatures that do not **stray** far from the place that they were born. But under the right circumstances — namely heavy rain, and a subsequent boom in plant growth — they can become "**gregarious**".When that happens the insects gather in **ravenous** swarms which can fly more than 100km in a day.
+
 ## 2020.10.22
 
 ### Microsoft drives another nail in the coffin of its most hated product
