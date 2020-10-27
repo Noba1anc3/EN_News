@@ -1,3 +1,9 @@
+## 2020.10.27
+
+### As motorcade rolls by, Thai royal family glimpses the people's discontent
+
+​		The protest movement has woven together **disparate** **strands** of dissatisfaction, ranging from frustration with school uniform rules to anger at the lavish lifestyle of the king at a time when a coronavirus ban on international tourism has hit Thailand’s economy hard.
+
 ## 2020.10.23
 
 ### Why locusts swarm
