@@ -1,3 +1,9 @@
+## 2020.10.29
+
+### Donald Trump and Joe Biden press their mute buttons
+
+​		Mr Trump's campaign believed that the more Mr Biden spoke, the **likelier** he was to **ramble** and lose his train of thought. Mr Biden's camp — judging by the first debate's **aftermath**, in which Mr Biden's polling lead grew after Trump repeatedly interrupted, **hectored** and insulted him — reasoned that the more airtime Mr Trump gets, the less voters like him.
+
 ## 2020.10.27
 
 ### As motorcade rolls by, Thai royal family glimpses the people's discontent
