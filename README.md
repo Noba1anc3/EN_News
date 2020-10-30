@@ -1,3 +1,17 @@
+## 2020.10.30
+
+### How to build a nuclear warning for 10,000 years' time
+
+​		"You don't have to try to scare people away by looking **menacing** and symbolizing danger. You need to inform people of what's there, so they can then make an informed decision for themselves."
+
+### A Chinese trans woman wins a legal victory
+
+​		It was not just the **verdict** that was surprising. The court also called for 'tolerance' and said society must 'respect and protect the personality, dignity and legitimate rights of transgender people'.
+
+### The latest trend among wealthy American travelers? Buying another country's citizenship
+
+​		For generations, the American passport afforded its holders the privilege of **hassle**-free travel around much of the world. That has changed with the coronavirus pandemic. While borders are beginning to reopen to international travel, some countries are staying closed to Americans because of the ongoing coronavirus outbreak **stateside**.
+
 ## 2020.10.29
 
 ### Donald Trump and Joe Biden press their mute buttons
