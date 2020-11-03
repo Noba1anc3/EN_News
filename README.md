@@ -1,3 +1,9 @@
+## 2020.11.03
+
+### Pro-choice protesters march in Polish cities amid abortion ban anger
+
+​		Poland already has some of the most **draconian** abortion laws in Europe, and on Thursday a constitutional **tribunal** ruled that one of the few exceptions to the ban — cases of severe **foetal** **impairment** — should also be made illegal. These cases, which hardline Catholic anti-abortion activists have called "**eugenic** abortion", made up almost all of the few abortions performed legally in Poland.
+
 ## 2020.10.30
 
 ### How to build a nuclear warning for 10,000 years' time
