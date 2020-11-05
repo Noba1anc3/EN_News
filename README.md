@@ -1,3 +1,9 @@
+## 2020.11.05
+
+### Cecilia Chiang, the trailblazing chef who brought real Chinese food to the USA, dies at 100
+
+"I hope she is a signal and an inspiration to people with `marginalized identities` to always believe in your own worth and knowledge, and to be uncompromising about your culture."
+
 ## 2020.11.03
 
 ### Pro-choice protesters march in Polish cities amid abortion ban anger
