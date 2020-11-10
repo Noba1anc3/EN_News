@@ -1,4 +1,28 @@
+## 2020.11.10
+
+### Senate confirms Barrett, delivering for Trump and reshaping the Court
+
+​		It was the first time in 151 years that a justice was confirmed without the support of a single member of the minority party, a sign of how bitter Washington's war over judicial nominations has become.
+
+​		Barrett, 48, was Trump's third nominee to the Supreme Court, but arrayed beneath her were 162 new district court judges and 53 appeals court judges who have been installed by Republicans over the past four years, roughly a third of the entire federal appellate bench. Together, they could hold broad sway over American law and policy long after Trump leaves office.
+
+### Legendary Paris bookshop Shakespeare and Company begs for help in pandemic
+
+​		The appeal follows a similar move from iconic New York bookshop the Strand, which said last week that the impact of Covid-19 meant that "we cannot survive the huge decline in foot traffic, a near-complete loss of tourism and zero in-store events."Nancy Bass-Wyden, **proprietor** of the 93-year-old American store, said revenue was down nearly 70% from 2019, and that "we are now at a turning point where our business is unsustainable".
+
+## 2020.11.06
+
+### Huge cat found etched into desert among Nazca Lines in Peru
+
+​		"The figure was **scarcely** visible and `was about to` disappear because it's situated on quite a steep slope that's **prone** to the effects of `natural erosion`, " Peru's culture ministry said in a statement this week.
+
 ## 2020.11.05
+
+### As smoke clears in Beirut, shock turns to anger
+
+​		Since an orphaned shipment of highly explosive chemicals arrived at the port of **Beirut** in 2013, **Lebanese** officials treated it the way they have dealt with the country's lack of electricity, poisonous tap water and overflowing garbage: by **bickering** and hoping the problem might solve itself.
+
+​		The system led to chronic political **deadlock** and widespread corruption, as well as **shoddy** infrastructure and massive government debt.
 
 ### Cecilia Chiang, the trailblazing chef who brought real Chinese food to the USA, dies at 100
 
