@@ -1,3 +1,9 @@
+## 2020.11.11
+
+### Terror in France reignites a national debate on the right to offend
+
+​		Things get even messier when the state appears to back a particular side. Macron has publicly supported Charlie Hebdo's right to publish whatever it wants. The images Paty showed were in a class about `freedom of expression` backed by the French education system.
+
 ## 2020.11.10
 
 ### Senate confirms Barrett, delivering for Trump and reshaping the Court
