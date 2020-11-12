@@ -1,3 +1,13 @@
+## 2020.11.12
+
+### How big is China's economy? Let the Big Mac decide
+
+​		Our index suggests that the bank now, if anything, underestimates the buying power of China's currency, and therefore its economic size. McDonald's was once a symbol of America's economic might. Now the Big Mac shows how its **might** is being surpassed.
+
+### The Uncle Roger controversy: Why people are outraged by a video about cooking rice
+
+​		But the issue at hand goes beyond a difference in opinion on the varying methods of cooking rice.　Countless White chefs in recent years have been accused of cultural **appropriation** by creating food from other ethnic groups using methods and phrases that are deemed "unauthentic", disrespectful, and sometimes outright racist.
+
 ## 2020.11.11
 
 ### Terror in France reignites a national debate on the right to offend
