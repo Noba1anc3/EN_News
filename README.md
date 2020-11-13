@@ -1,3 +1,13 @@
+## 2020.11.13
+
+### UK must prioritize leveling up if economy is to get back on its feet
+
+​		Progress on the promises he made on the steps of Downing Street a year ago remain minimal. Leveling up is still no more than a phrase, social care is not fixed, Brexit is not done. Many voters would give the prime minister a pass on these issues during a global health emergency. But as the summer months provide distance from the initial shock, and as the government attempts to shift **gear** from crisis management to the recovery phase of the outbreak, patience will be tested.
+
+### A selfie set in stone: hidden portrait by cheeky mason found in Spain 900 years on
+
+​		She added that such craftsmen have remained anonymous throughout the centuries even into more recent times: "So these are the unsung geniuses."
+
 ## 2020.11.12
 
 ### How big is China's economy? Let the Big Mac decide
