@@ -1,0 +1,8 @@
+​		Small communities, with their **distinctive** character—where life is **stable** and intensely human—are disappearing. Some have **vanished** from the face of the earth, others are dying slowly, but all have **undergone** changes as they have come into contact with an expanding machine civilization. The merging of **diverse** peoples into a common **mass** has produced **tension** among members of the minorities and the **majority** alike.
+
+​		The Old Order Amish, who arrived on American shores in colonial times, have survived in the modern world in distinctive, small communities. They have resisted the **homogenization** process more successfully than others. In planting and harvest times one can see their bearded men working the fields with horses and their women hanging out the **laundry** in neat rows to dry. Many American people have seen Amish families with the men wearing broad-brimmed black hats and the women in long dresses. In railway or bus terminal. Although the Amish have lived with industrialized America for over two and a half centuries. They have moderated its influence on their personal lives, their families, communities, and their values.
+
+​		The Amish are often **perceived** by other Americans to be relics of the past who live a simple, **inflexible** life **dedicated** to **inconvenient** out-dated customs. They are seen as abandoning both modem conveniences and the American dream of success and progress, But most people have no **quarrel** with the Amish for doing things the old-fashioned way. Their **conscientious** **objection** was tolerated in wartime. For after all. They are good farmers who practice the virtues of work and **thrift**.
+
+
+
