@@ -1,3 +1,13 @@
+### IMAX bets on China cinema rebound, adding screens with Wanda
+
+​		Imax China shares climbed `by a record` 16% Wednesday in Hong Kong after Goldman Sachs said the parent was `well-positioned` for a recovery and was less `vulnerable to` competition from `streaming services`.
+
+## 2020.11.17
+
+### Kamala Harris makes history as first woman and woman of color as Vice President
+
+​		Kimberlé Crenshaw, a prominent Black progressive scholar, **hailed** Harris' ascension to the vice presidency and described her as "`well positioned` to weather the storms that will definitely come `now that` she has broken through the glass ceiling."
+
 ## 2020.11.13
 
 ### UK must prioritize leveling up if economy is to get back on its feet
