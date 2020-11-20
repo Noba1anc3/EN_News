@@ -1,3 +1,25 @@
+## 2020.11.20
+
+### Airbnb was like a family, until the layoffs started
+
+​		In many ways, Airbnb was the ideal example of a commitment culture company. Along the way to a $31 billion valuation, Airbnb built a reputation for the **earnest** idealism. Chesky spoke frequently of **trustworthiness**, authenticity and a desire to build a business that valued principles and people over the short-termism of Wall Street.
+
+​		So in March, when the coronavirus **hurtled** in, the **rupturing** of the "Airfam" was painful. Airbnb, which had been `on track` to go public this year, suddenly faced an **avalanche** of travel cancellations. Revenue evaporated. Weeks later, Chesky announced the **layoffs** and scaled back the company's ambitions.
+
+​		From the outside, Airbnb's commitment culture appeared intact. But more than a dozen current and former Airbnb employees said in interviews that they had experienced a sudden **disillusionment** when the carefully crafted corporate idealism cracked.
+
+### Alibaba Singles' Day ends strongly as Beijing crackdown looms
+
+​		Alibaba has been benefiting after the pandemic forced Chinese consumers to accelerate their shift to e-commerce. Homebound consumers turned grocery delivery into the industry's hottest arena. Domestic travel is accelerating, **propping** up Alibaba businesses such as Fliggy, while a raft of new smartphones launched during the quarter is expected to **tap** pent-up demand for electronics.
+
+## 2020.11.19
+
+### Does our tech match past sci-fi marvels
+
+​		**Androids** that convincing might not yet walk among us, but they certainly exist, **albeit** in a more **benevolent** form. At the Kodaiji Buddhist temple in Kyoto, Japan, **enlightenment** seekers can enjoy sermons **preached** by Mindar, a robot speaking as Kannon Bodhisattva, the Buddhist **deity** of mercy.
+
+## 2020.11.18
+
 ### IMAX bets on China cinema rebound, adding screens with Wanda
 
 ​		Imax China shares climbed `by a record` 16% Wednesday in Hong Kong after Goldman Sachs said the parent was `well-positioned` for a recovery and was less `vulnerable to` competition from `streaming services`.
