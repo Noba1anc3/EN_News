@@ -1,3 +1,9 @@
+## 2020.11.23
+
+### How the 'durian of soup' became the hippest dish in China
+
+​		Unusual foods often gain **cult** followings. But it's rare for an **odorous** dish to become a national favorite, which is exactly what's happened with luosifen. Just like the notorious durian fruit, this snail-based **rice noodle** soup dish has `created a buzz` on Chinese social media `thanks to` its **infamous** smell.
+
 ## 2020.11.20
 
 ### Airbnb was like a family, until the layoffs started
