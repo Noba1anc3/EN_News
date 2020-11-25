@@ -1,3 +1,19 @@
+## 2020.11.25
+
+### What makes an iconic book cover
+
+​		There's a famous saying about never forming your opinion of a book by the jacket **adorning** it. But most readers know that we do, in fact, judge books by their covers all the time.
+
+​		Covers can be a swift way to signal genre, but the good ones do more than that. They give face to a book's personality. They're what will make you pick it up **in the first place**, then keep it on your shelf to remind you what it meant to you.
+
+### Biden holds daunting lead over Trump as US election enters final stretch
+
+​		One hundred days before the `presidential election`, Joe Biden has built a **commanding** and enduring lead over Donald Trump, whose path to victory has narrowed **considerably** in the months since the coronavirus pandemic began.
+
+### Eating Thai fruit demands serious effort
+
+​		The most **infamous** fruit, which stinks of death, is the durian. The durian's flavor **elicits** passionate, and polarizing, responses, with few **indifferent** about the fruit's appeal or **repulsiveness**. On the outside, the durian resembles a medieval torture device. Nestled inside the **spiky** shell are kidney-shaped lobes of custard. Even if the smell could be put aside, the durian would still probably have the highest grapple factor among Southeast Asia's **endemic** fruits. Thai exports of the fruit are mostly destined for China, where consumers tend to be more willing to work for their meals.
+
 ## 2020.11.23
 
 ### How the 'durian of soup' became the hippest dish in China
