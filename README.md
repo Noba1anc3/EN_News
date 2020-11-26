@@ -1,3 +1,13 @@
+## 2020.11.26
+
+### Rainbow bright! How the symbol of optimism and joy spread across our clothes, homes and lives in 2020
+
+​		Optimism is the hottest commodity of 2020. But some people are **irritated** by the way consumer culture **commodifies** the human experience, packaging our hopes and dreams as if they were just another product in the warehouse.
+
+​		But, says the fashion editor turned designer JJ Martin:"It's great to have the colorful dress, but what really **counts** is the flame you turn on inside yourself."
+
+​		The magic of a rainbow isn't really about the pot of gold, but the calm after the storm. In the optimism economy, it really is the thought that counts.
+
 ## 2020.11.25
 
 ### What makes an iconic book cover
