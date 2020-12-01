@@ -1,3 +1,25 @@
+## 2020.12.01
+
+### What did Europe smell like centuries ago? Historians set out to re-create lost smells
+
+​		For hundreds of years, through plagues and other pandemics, people used to believe that disease was spread not through droplets or **flea** bites, but through the **inhalation** of unpleasant odors. To purify the air around them, they would burn rosemary and hot **tar**.
+
+### In Afghanistan, fears of assassination overshadow hopes of peace
+
+​		The **steady** `drum beat` of killings has `cast a shadow of` fear across the country, even as the government and Taliban are meant to be `hammering out` a peace deal. Many people see a connection between the two, even though the attacks have not all been claimed by the insurgents.
+
+steady  稳步的，持续的
+
+​		"Even if we only assume the Taliban are responsible for part of them, the message is clear: 'Be prepared for our rule, be prepared to surrender, we are coming back', " said Orzala Ashraf Nemat, the director of the Kabul-based thinktank AREU.
+
+​		"It is to discourage the united struggle for `democratic values`, `freedom of speech`, education, even the enlightening side of religious scholarship. They are trying to do these attacks to create fear because their rule is fear-based."
+
+## 2020.11.27
+
+### How 'the Queen's Gambit' started a new debate about sexism in chess
+
+​		The cultural **cleaving** between boys and girls happens at a young age. That creates and reinforces another problem that discourages women's participation: too few social contacts. Jennifer Shahade, a two-time U.S. women's champion, said teenage girls tend to stop playing chess because there are so few of them and they want the social support.
+
 ## 2020.11.26
 
 ### Rainbow bright! How the symbol of optimism and joy spread across our clothes, homes and lives in 2020
