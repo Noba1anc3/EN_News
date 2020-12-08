@@ -1,3 +1,21 @@
+## 2020.12.08
+
+### COMAC C919: China takes on Airbus and Boeing
+
+​		As aviation **tentatively** reboots, Boeing and its European rival Airbus are **duking** it out for the **lion's share** of the recovering market with their B737 and A320 airplanes respectively — a dynamic that's **contingent** upon Boeing resolving its 737 MAX **woes**.
+
+### Who will miss the coins when they're gone
+
+​		Coins are everywhere until they're nowhere, and at the moment they're hard to find. By upending normal habits, the pandemic has dropped them out of circulation and accelerated a trend toward cards, apps and other cashless payments that could eventually make coins **obsolete**.
+
+​		However, coins will always have defenders in curators and collectors. Dr. Fleur Kemmers, an **archaeologist** at Goethe University Frankfurt, called ancient coins "historic documents, " passed down by people across centuries and continents as they **haggled**, **hoarded** and made their way through daily life."They are **tangible** remains of past regimes, yet also part of the daily lives of ordinary people 2, 000 years ago, " she said.
+
+​		Then as now, they became part of little rituals, symbols and gestures. Fearing bad luck, some don't pick up a penny unless it's heads-up. For centuries, people have tossed coins into wishing wells, or now their urban equivalent, the city fountain.
+
+### China has 8 million blind people, but only 200 guide dogs
+
+​		According to state broadcaster CCTV, China only had some 200 guide dogs `in service` as of April — which makes them even rarer than the giant pandas. The service dogs' **scarcity** is all the more striking considering the large number of people who could potentially benefit from their help. According to the World Health Organization, eight million Chinese are completely blind — roughly equal to the whole population of Switzerland.
+
 ## 2020.12.01
 
 ### What did Europe smell like centuries ago? Historians set out to re-create lost smells
