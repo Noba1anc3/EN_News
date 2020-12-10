@@ -1,3 +1,9 @@
+## 2020.12.10
+
+### For Japanese princess, fairy-tale wedding may be distant prospect
+
+​		Japanese law forbids women from ascending the throne, and heirs must come from the male line of succession. Following the **abdication** of Emperor Akihito last year and the ascension of his son Naruhito to the **Chrysanthemum** Throne, only two potential heirs remain: the **crown prince** and his son.
+
 ## 2020.12.08
 
 ### COMAC C919: China takes on Airbus and Boeing
