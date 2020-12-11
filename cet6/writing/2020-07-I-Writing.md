@@ -22,7 +22,7 @@ beyond doubt
 
 keep in mind
 
-paves your way forward
+pave your way forward
 
 
 
