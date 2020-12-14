@@ -1,3 +1,17 @@
+## 2020.12.14
+
+### A 4-day workweek for 5 days' pay? Unilever New Zealand is the latest to try
+
+​		"This is a way to compete smart, " he said."If there is an enlightened company that does this, they are going to have their pick of the best people in the industry and those people are going to be extraordinarily loyal."
+
+### The dawn of digital medicine
+
+​		Tech giants' earlier **forays** into health care flopped, argues Shubham Singhal of McKinsey, because they had gone it alone. Medicine is a regulatory **minefield** where big tech's business models, particularly the ad-supported sort, are not a natural fit. But the pandemic has also highlighted that existing providers' **snazzy** hardware and pricey services too seldom **genuinely** improve health outcomes.
+
+### The tactics retailers use to make us spend more
+
+​		Scarcity: Anything limited creates a sense of urgency and **primes** us to act quickly. Sales are by definition limited. Hotel websites also use this when they say four rooms are available but five people are viewing them.
+
 ## 2020.12.10
 
 ### For Japanese princess, fairy-tale wedding may be distant prospect
