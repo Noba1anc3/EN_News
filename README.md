@@ -1,3 +1,9 @@
+## 2020.12.18
+
+### Pantone unveils its 2021 Color(s) of the Year: Ultimate Gray and Illuminating
+
+​		As 2020 nears its **tumultuous** end, the Pantone Color Institute has taken up its annual task of forecasting the color that will best reflect the year ahead. In a decision **befitting** a complex time, the color authority has revealed two **hues** for its Color of the Year: the neutral Ultimate Gray and **vibrant** yellow **Illuminating**.
+    
 ## 2020.12.14
 
 ### A 4-day workweek for 5 days' pay? Unilever New Zealand is the latest to try
