@@ -1,3 +1,9 @@
+## 2020.12.21
+
+### Disney plans to match Netflix in its spending on streaming
+
+​		In a presentation to investors on December 10th Disney **dispelled** those doubts once and for all. It announced a content binge designed to put it on a par with Netflix — and to shift the company's focus sharply towards streaming.
+
 ## 2020.12.18
 
 ### Pantone unveils its 2021 Color(s) of the Year: Ultimate Gray and Illuminating
