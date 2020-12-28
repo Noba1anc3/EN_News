@@ -1,3 +1,27 @@
+## 2020.12.28
+
+### An opinion writer argued Jill Biden should drop the 'Dr'
+
+​		Sarah H. Parcak, who has a Ph.D. from Cambridge University, along with many others, said the suggestion that Biden not use the **honorific** was **blatantly** sexist and **emblematic** of the way many men question or **disparage** women's credentials.
+
+​		The raw nerve touched by the piece **underscored** the enduring power of the title — two letters that convey accomplishment, respect and authority.
+        
+### The battle within the electric-vehicle industry will intensify
+
+​		**Flashy** launches of vehicles are one thing, but as the industry's **travails** show, working out how to make cars at scale, when bits and bytes are as important as brakes and **bodywork**, is quite another. The coming year will make clearer which of Tesla’s competitors, new and old, can stay in the race.
+        
+### With Americans stuck at home, trade with China roars back
+
+​		China employed lockdowns and surveillance to shake off the effects of the pandemic, allowing its factories to reopen at a large scale more quickly than businesses in the United States, where the disease is still running **rampant**.
+
+### China to open giant telescope to international scientists
+
+​		China has been rapidly boosting its scientific credentials to become less reliant on foreign technology. In the past two decades, China has built the largest high-speed train network in the world, finalised its Beidou geolocation system and is now in the process of bringing lunar samples back to Earth.
+
+​		The data being collected by FAST should allow for a better understanding of the origins of the universe — and aid in the search for alien life.
+
+​		"More and more **discretion** has been given to the scientific and engineering community to explore new ideas and take bigger risks in the research environment, " he said."The risk-**averse** culture that was once predominant has given way to a more **entrepreneurial** culture."
+
 ## 2020.12.21
 
 ### Disney plans to match Netflix in its spending on streaming
