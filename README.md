@@ -1,3 +1,19 @@
+## 2021.01.04
+
+### Millions of Americans still get their drinking water from lead pipes
+
+​		The city's water **woes** can be blamed in part on the historic **clout** of industrial lobbyists and a union of **plumbers**. In the last century, they **nudged** Chicago's political bosses to set rules making lead pipes **compulsory**. That lasted until a federal ban on new lead pipes in 1986.
+                
+### Giant pandas roll in horse manure to keep warm, study finds
+
+​		Unlike insects that make a **beeline** for **faeces**, digging for **olfactory** cues to locate food, attraction to **excrement** across mammal species is rare. But researchers from the Chinese Academy of Sciences observed that a giant panda subspecies in China's Qinling Mountains tended to seek out and sniff fresh horse manure and then roll over it.
+
+### Five trends to watch in the coming year
+
+​		As the first vaccines become available in quantity, the focus will shift from the heroic effort of developing them to the equally **daunting** task of distributing them. Vaccine diplomacy will accompany fights within and between countries over who should get them and when.
+
+​		As economies bounce back from the pandemic the recovery will be **patchy**, as local outbreaks and **clampdowns** come and go — and governments **pivot** from keeping companies on life-support to helping workers who have lost their jobs.
+
 ## 2020.12.28
 
 ### An opinion writer argued Jill Biden should drop the 'Dr'
