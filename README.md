@@ -1,3 +1,13 @@
+## 2020.01.06
+
+### Why is Pixar so brilliant at death
+
+​		There comes a time in the life of a writer, director and, perhaps, a company when the days shorten, the shadows lengthen and **contemplating** the inevitable must begin. The guy in the cloak with the **retro** lawn equipment can't be ignored any longer: Death.
+
+​		Pixar understands this theme so well because the birth of the company itself signified a moment of pop-culture **obsolescence**. Toy Story is **suffused** with **nostalgia**, for the era of **wholesome** postwar entertainment that the likes of Woody and Bo-Peep represent.
+
+​		Consumers expect far more these days, and Hollywood's digital CGI **wizards** can conjure up anything to match our expectations. Pixar is part of the same San Francisco Silicon Valley elite that is busy trying to "cure" death. Maybe depicting that great intangible is the one remaining frontier for its entertainment arm to conquer.
+    
 ## 2021.01.04
 
 ### Millions of Americans still get their drinking water from lead pipes
