@@ -1,3 +1,11 @@
+## 2020.01.11
+
+### How Europe's night trains came back from the dead
+
+​		Going to bed in one major city and waking up in another; **toasting** the landscape as a new country slips past; being rocked to sleep as you rattle across a continent. It's no wonder that the night trains of Europe have been a **byword** for romance, **immortalized** by writers such as Agatha Christie.
+
+​		"You leave work at a normal time, have dinner, make your way to the station, get on the train, and wake up in the place you want to be. There's no turning up at the airport at an **unearthly** hour, as you do for a **budget** flight." says Monisha Rajesh, author of "Around the World in 80 Trains."
+
 ## 2020.01.06
 
 ### Why is Pixar so brilliant at death
