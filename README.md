@@ -1,3 +1,9 @@
+## 2020.01.12
+
+### The sound of aurora borealis
+
+​		For him, such projects are a reminder of the "system of order in the solar system" now disrupted on Earth by human actions that have led to planet-threatening climate change. Circumpolar peoples, Native Alaskans among them, have already seen their customs and **livelihoods** **imperiled** by the scrambled seasons and retreating ice. Mr Burtner's music echoes the ancient harmonies of this world and alerts listeners to its new fragility.
+
 ## 2020.01.11
 
 ### How Europe's night trains came back from the dead
