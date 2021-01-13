@@ -1,3 +1,9 @@
+## 2020.01.13
+
+### 'Peak hype': why the driverless car revolution has stalled
+
+​		Looking back, Prof Nick Reed, a transport consultant who ran UK self-driving trials, says"The technology worked…we are 90% of the way there. But it is that last bit which is the toughest. Being able reliably to do the right thing every single time, whether it's raining, snowing, fog, is a bigger challenge than anticipated."
+
 ## 2020.01.12
 
 ### The sound of aurora borealis
